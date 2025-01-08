@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-🧑🏻‍💻 Computer Engineering student <br>🥷🏼🕵🏻‍♂️ Interested in cyber security<br>
+🧑🏻‍💻 Computer Engineering student <br> Enthusiast on Problem Solving and Optimazing Code <br> Always eager to learn and improve <br>
 
 ## 🌐 Socials:
 
